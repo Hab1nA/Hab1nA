@@ -1,2 +1,2 @@
 Only a KSP player
-And a phone player?
+and a phone player?
